@@ -1,0 +1,1 @@
+My current foot configuration.
